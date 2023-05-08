@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with finding a remote job.
 - 💬 Ask me about anything you want.
 - 📫 How to reach me: mr.vincent.ge@outlook.com
-- ⚡ Fun fact: have 2 mothers.
